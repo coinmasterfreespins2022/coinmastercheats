@@ -136,7 +136,7 @@ The bonus feature is when you win a special prize on the reels, it will be highl
 
 There are three ways to get the free spins, one way is to play the free slots game, the second way is to play some of the promotional offers and the third way is by playing the game for real money.
 
-Free spins can be added to your account through both the video slots and the live casino. Just go to [***BARLOG.ORG/CM***](https://barlog.org/cm)
+Free spins can be added to your account through both the video slots and the live casino. Just go to [***BARLOG.ORG/CM***](https://barlog.org/cm).
 
 Now, I'm sure there's plenty of ways to get free spins on Coin Master, but let's try and come up with some that aren't too dodgy.
 
